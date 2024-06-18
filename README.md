@@ -1,1 +1,1 @@
-# s15-aula2
+O dia 17 de junho vai ficar marcado como a data mais importante do século para os Celtics. Assim como aconteceu há exatos 16 anos - quando a equipe conquistou o 17º título em cima dos Lakers-, a franquia de Boston foi campeã ao lado da torcida no TD Garden, desta vez em cima dos Mavericks. O time de Dallas não conseguiu levar a disputa para o jogo 6, nesta segunda-feira, e os Celtics cravaram o título da NBA por 106 a 88 e fecharam em 4 a 1 a série da final da maior liga de basquete do mundo. Jaylen Brown foi coroado como o MVP das finais.
